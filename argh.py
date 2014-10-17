@@ -1,3 +1,0 @@
-argh
-gah
-crapp
